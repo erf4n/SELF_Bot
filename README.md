@@ -1,4 +1,4 @@
-# [DECOPAJE_TEAM](https://telegram.me/Decopaje_team]
+# [DECOPAJE_TEAM](https://telegram.me/Decopaje_team)
 
 
 # developer
