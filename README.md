@@ -5,6 +5,6 @@
 
 
 
-<font size="+2"><font color="gold">The lASt PERSIAN SELF BOT<font></font>
+<font size="+2"><font color="gold">The lAST PERSIAN SELF BOT<font></font>
 
 # production date 2016/7/1 _ 95/4/11
