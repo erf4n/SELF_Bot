@@ -4,7 +4,7 @@
 # developer
 
 
-# [Ee](яғѧň)"^Ԁєcopѧjє$"
+# Eяғѧň"^Ԁєcopѧjє$"
 
 
 
