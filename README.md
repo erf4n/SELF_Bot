@@ -1,10 +1,10 @@
 # [DECOPAJE_TEAM](https://telegram.me/Decopaje_team)
 
 
-# developer
+# developer Eяғѧň"^Ԁєcopѧjє$"
 
 
-# Eяғѧň"^Ԁєcopѧjє$"
+
 
 
 
